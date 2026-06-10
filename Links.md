@@ -1,5 +1,8 @@
 ## 🔗 Direct Download Links
 
+### 📅 2026-06-10 08:59 (IR Time)
+- 📥 [_THIEME Atlas of Anatomy_ Michael Schuenke_ Erik Schulte_ Udo Schumacher - Head_ Neck_ and Neuroanatomy _THIEME Atlas of Anatomy_ _2020_ Thieme_ - libgen.li.pdf](https://github.com/Forreceivingarticles/01/raw/main/dl/_THIEME%20Atlas%20of%20Anatomy_%20Michael%20Schuenke_%20Erik%20Schulte_%20Udo%20Schumacher%20-%20Head_%20Neck_%20and%20Neuroanatomy%20_THIEME%20Atlas%20of%20Anatomy_%20_2020_%20Thieme_%20-%20libgen.li.pdf) `54.88 MB`
+
 ### 📅 2026-06-10 06:30 (IR Time)
 - 🎬 [آموزش_نصب_پنل_ثنایی_3X_UI_Xray__VLESS__Reality__Shadowsocks_.mp4](https://github.com/Forreceivingarticles/01/raw/main/dl/%D8%A2%D9%85%D9%88%D8%B2%D8%B4_%D9%86%D8%B5%D8%A8_%D9%BE%D9%86%D9%84_%D8%AB%D9%86%D8%A7%DB%8C%DB%8C_3X_UI_Xray__VLESS__Reality__Shadowsocks_.mp4) `37.71 MB`
 
