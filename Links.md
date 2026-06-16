@@ -1,6 +1,10 @@
 ## 🔗 Direct Download Links
 
 ### 📅 2026-06-16 16:02 (IR Time)
+- 🗜️ [QB ENT 1404.zip.001](https://github.com/Forreceivingarticles/01/raw/main/dl/QB%20ENT%201404.zip.001) `95.00 MB`
+- 🗜️ [QB ENT 1404.zip.002](https://github.com/Forreceivingarticles/01/raw/main/dl/QB%20ENT%201404.zip.002) `58.14 MB`
+
+### 📅 2026-06-16 16:02 (IR Time)
 - 🗜️ [کیوبی چشم.zip.001](https://github.com/Forreceivingarticles/01/raw/main/dl/%DA%A9%DB%8C%D9%88%D8%A8%DB%8C%20%DA%86%D8%B4%D9%85.zip.001) `95.00 MB`
 - 🗜️ [کیوبی چشم.zip.002](https://github.com/Forreceivingarticles/01/raw/main/dl/%DA%A9%DB%8C%D9%88%D8%A8%DB%8C%20%DA%86%D8%B4%D9%85.zip.002) `6.46 MB`
 
