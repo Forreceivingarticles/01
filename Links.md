@@ -1,5 +1,8 @@
 ## 🔗 Direct Download Links
 
+### 📅 2026-06-16 21:50 (IR Time)
+- 🗜️ [کیوبی مغز و اعصاب کامران احمدی 1404.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/%DA%A9%DB%8C%D9%88%D8%A8%DB%8C%20%D9%85%D8%BA%D8%B2%20%D9%88%20%D8%A7%D8%B9%D8%B5%D8%A7%D8%A8%20%DA%A9%D8%A7%D9%85%D8%B1%D8%A7%D9%86%20%D8%A7%D8%AD%D9%85%D8%AF%DB%8C%201404.zip) `29.74 MB`
+
 ### 📅 2026-06-16 21:48 (IR Time)
 - 🗜️ [کیوبی اطفال1 کامران احمدی 1404.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/%DA%A9%DB%8C%D9%88%D8%A8%DB%8C%20%D8%A7%D8%B7%D9%81%D8%A7%D9%841%20%DA%A9%D8%A7%D9%85%D8%B1%D8%A7%D9%86%20%D8%A7%D8%AD%D9%85%D8%AF%DB%8C%201404.zip) `32.70 MB`
 
