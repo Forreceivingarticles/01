@@ -1,5 +1,9 @@
 ## 🔗 Direct Download Links
 
+### 📅 2026-06-16 16:02 (IR Time)
+- 🗜️ [کیوبی پوست.zip.001](https://github.com/Forreceivingarticles/01/raw/main/dl/%DA%A9%DB%8C%D9%88%D8%A8%DB%8C%20%D9%BE%D9%88%D8%B3%D8%AA.zip.001) `95.00 MB`
+- 🗜️ [کیوبی پوست.zip.002](https://github.com/Forreceivingarticles/01/raw/main/dl/%DA%A9%DB%8C%D9%88%D8%A8%DB%8C%20%D9%BE%D9%88%D8%B3%D8%AA.zip.002) `13.60 MB`
+
 ### 📅 2026-06-16 16:01 (IR Time)
 - 🗜️ [کیوبی عفونی کامران احمدی 1404.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/%DA%A9%DB%8C%D9%88%D8%A8%DB%8C%20%D8%B9%D9%81%D9%88%D9%86%DB%8C%20%DA%A9%D8%A7%D9%85%D8%B1%D8%A7%D9%86%20%D8%A7%D8%AD%D9%85%D8%AF%DB%8C%201404.zip) `46.17 MB`
 
