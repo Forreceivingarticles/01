@@ -1,6 +1,10 @@
 ## 🔗 Direct Download Links
 
 ### 📅 2026-06-16 21:51 (IR Time)
+- 🗜️ [QB1404  جراحی 3 .zip.001](https://github.com/Forreceivingarticles/01/raw/main/dl/QB1404%20%20%D8%AC%D8%B1%D8%A7%D8%AD%DB%8C%203%20.zip.001) `95.00 MB`
+- 🗜️ [QB1404  جراحی 3 .zip.002](https://github.com/Forreceivingarticles/01/raw/main/dl/QB1404%20%20%D8%AC%D8%B1%D8%A7%D8%AD%DB%8C%203%20.zip.002) `39.41 MB`
+
+### 📅 2026-06-16 21:51 (IR Time)
 - 🗜️ [QB1404جراحی 1.zip.001](https://github.com/Forreceivingarticles/01/raw/main/dl/QB1404%D8%AC%D8%B1%D8%A7%D8%AD%DB%8C%201.zip.001) `95.00 MB`
 - 🗜️ [QB1404جراحی 1.zip.002](https://github.com/Forreceivingarticles/01/raw/main/dl/QB1404%D8%AC%D8%B1%D8%A7%D8%AD%DB%8C%201.zip.002) `29.60 MB`
 
