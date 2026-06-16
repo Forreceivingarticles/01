@@ -1,6 +1,10 @@
 ## 🔗 Direct Download Links
 
 ### 📅 2026-06-16 16:04 (IR Time)
+- 🗜️ [کیوبی گوارش.zip.001](https://github.com/Forreceivingarticles/01/raw/main/dl/%DA%A9%DB%8C%D9%88%D8%A8%DB%8C%20%DA%AF%D9%88%D8%A7%D8%B1%D8%B4.zip.001) `95.00 MB`
+- 🗜️ [کیوبی گوارش.zip.002](https://github.com/Forreceivingarticles/01/raw/main/dl/%DA%A9%DB%8C%D9%88%D8%A8%DB%8C%20%DA%AF%D9%88%D8%A7%D8%B1%D8%B4.zip.002) `0.38 MB`
+
+### 📅 2026-06-16 16:04 (IR Time)
 - 🗜️ [__کیوبی روان_.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/__%DA%A9%DB%8C%D9%88%D8%A8%DB%8C%20%D8%B1%D9%88%D8%A7%D9%86_.zip) `71.57 MB`
 
 ### 📅 2026-06-16 16:03 (IR Time)
