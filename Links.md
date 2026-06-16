@@ -1,6 +1,9 @@
 ## 🔗 Direct Download Links
 
 ### 📅 2026-06-16 21:47 (IR Time)
+- 🗜️ [__کیوبی روان_.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/__%DA%A9%DB%8C%D9%88%D8%A8%DB%8C%20%D8%B1%D9%88%D8%A7%D9%86_.zip) `71.57 MB`
+
+### 📅 2026-06-16 21:47 (IR Time)
 - 🗜️ [SKM_C75925090216400.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/SKM_C75925090216400.zip) `19.58 MB`
 
 ### 📅 2026-06-16 21:47 (IR Time)
