@@ -1,6 +1,10 @@
 ## 🔗 Direct Download Links
 
 ### 📅 2026-06-16 21:54 (IR Time)
+- 🗜️ [کیوبی اطفال ۳.zip.001](https://github.com/Forreceivingarticles/01/raw/main/dl/%DA%A9%DB%8C%D9%88%D8%A8%DB%8C%20%D8%A7%D8%B7%D9%81%D8%A7%D9%84%20%DB%B3.zip.001) `95.00 MB`
+- 🗜️ [کیوبی اطفال ۳.zip.002](https://github.com/Forreceivingarticles/01/raw/main/dl/%DA%A9%DB%8C%D9%88%D8%A8%DB%8C%20%D8%A7%D8%B7%D9%81%D8%A7%D9%84%20%DB%B3.zip.002) `62.90 MB`
+
+### 📅 2026-06-16 21:54 (IR Time)
 - 🗜️ [کیوبی اطفال ۲.zip.001](https://github.com/Forreceivingarticles/01/raw/main/dl/%DA%A9%DB%8C%D9%88%D8%A8%DB%8C%20%D8%A7%D8%B7%D9%81%D8%A7%D9%84%20%DB%B2.zip.001) `95.00 MB`
 - 🗜️ [کیوبی اطفال ۲.zip.002](https://github.com/Forreceivingarticles/01/raw/main/dl/%DA%A9%DB%8C%D9%88%D8%A8%DB%8C%20%D8%A7%D8%B7%D9%81%D8%A7%D9%84%20%DB%B2.zip.002) `8.31 MB`
 
