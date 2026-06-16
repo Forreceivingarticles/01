@@ -1,6 +1,10 @@
 ## 🔗 Direct Download Links
 
 ### 📅 2026-06-16 21:52 (IR Time)
+- 🗜️ [QB ENT 1404.zip.001](https://github.com/Forreceivingarticles/01/raw/main/dl/QB%20ENT%201404.zip.001) `95.00 MB`
+- 🗜️ [QB ENT 1404.zip.002](https://github.com/Forreceivingarticles/01/raw/main/dl/QB%20ENT%201404.zip.002) `58.14 MB`
+
+### 📅 2026-06-16 21:52 (IR Time)
 - 🗜️ [آزمون های تمرینی فارماکولوژی.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/%D8%A2%D8%B2%D9%85%D9%88%D9%86%20%D9%87%D8%A7%DB%8C%20%D8%AA%D9%85%D8%B1%DB%8C%D9%86%DB%8C%20%D9%81%D8%A7%D8%B1%D9%85%D8%A7%DA%A9%D9%88%D9%84%D9%88%DA%98%DB%8C.zip) `62.29 MB`
 
 ### 📅 2026-06-16 21:51 (IR Time)
