@@ -1,5 +1,8 @@
 ## 🔗 Direct Download Links
 
+### 📅 2026-06-16 21:56 (IR Time)
+- 🗜️ [SKM_C75925090216400.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/SKM_C75925090216400.zip) `19.58 MB`
+
 ### 📅 2026-06-16 21:55 (IR Time)
 - 🗜️ [کیوبی قلب.zip.001](https://github.com/Forreceivingarticles/01/raw/main/dl/%DA%A9%DB%8C%D9%88%D8%A8%DB%8C%20%D9%82%D9%84%D8%A8.zip.001) `95.00 MB`
 - 🗜️ [کیوبی قلب.zip.002](https://github.com/Forreceivingarticles/01/raw/main/dl/%DA%A9%DB%8C%D9%88%D8%A8%DB%8C%20%D9%82%D9%84%D8%A8.zip.002) `94.82 MB`
