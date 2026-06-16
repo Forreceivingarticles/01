@@ -1,6 +1,9 @@
 ## 🔗 Direct Download Links
 
 ### 📅 2026-06-16 21:51 (IR Time)
+- 🗜️ [کیوبی چشم کامران احمدی 1404.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/%DA%A9%DB%8C%D9%88%D8%A8%DB%8C%20%DA%86%D8%B4%D9%85%20%DA%A9%D8%A7%D9%85%D8%B1%D8%A7%D9%86%20%D8%A7%D8%AD%D9%85%D8%AF%DB%8C%201404.zip) `21.35 MB`
+
+### 📅 2026-06-16 21:51 (IR Time)
 - 🗜️ [کیوبی عفونی کامران احمدی 1404.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/%DA%A9%DB%8C%D9%88%D8%A8%DB%8C%20%D8%B9%D9%81%D9%88%D9%86%DB%8C%20%DA%A9%D8%A7%D9%85%D8%B1%D8%A7%D9%86%20%D8%A7%D8%AD%D9%85%D8%AF%DB%8C%201404.zip) `46.17 MB`
 
 ### 📅 2026-06-16 21:50 (IR Time)
