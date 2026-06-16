@@ -1,6 +1,10 @@
 ## 🔗 Direct Download Links
 
 ### 📅 2026-06-16 21:45 (IR Time)
+- 🗜️ [کیوبی زنان ۲ چاپ ۱۴۰۴.zip.001](https://github.com/Forreceivingarticles/01/raw/main/dl/%DA%A9%DB%8C%D9%88%D8%A8%DB%8C%20%D8%B2%D9%86%D8%A7%D9%86%20%DB%B2%20%DA%86%D8%A7%D9%BE%20%DB%B1%DB%B4%DB%B0%DB%B4.zip.001) `95.00 MB`
+- 🗜️ [کیوبی زنان ۲ چاپ ۱۴۰۴.zip.002](https://github.com/Forreceivingarticles/01/raw/main/dl/%DA%A9%DB%8C%D9%88%D8%A8%DB%8C%20%D8%B2%D9%86%D8%A7%D9%86%20%DB%B2%20%DA%86%D8%A7%D9%BE%20%DB%B1%DB%B4%DB%B0%DB%B4.zip.002) `35.62 MB`
+
+### 📅 2026-06-16 21:45 (IR Time)
 - 🗜️ [هماتو کیوبی.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/%D9%87%D9%85%D8%A7%D8%AA%D9%88%20%DA%A9%DB%8C%D9%88%D8%A8%DB%8C.zip) `6.82 MB`
 
 ### 📅 2026-06-16 21:45 (IR Time)
