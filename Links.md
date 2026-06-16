@@ -1,6 +1,10 @@
 ## 🔗 Direct Download Links
 
 ### 📅 2026-06-16 21:53 (IR Time)
+- 🗜️ [کیوبی پوست.zip.001](https://github.com/Forreceivingarticles/01/raw/main/dl/%DA%A9%DB%8C%D9%88%D8%A8%DB%8C%20%D9%BE%D9%88%D8%B3%D8%AA.zip.001) `95.00 MB`
+- 🗜️ [کیوبی پوست.zip.002](https://github.com/Forreceivingarticles/01/raw/main/dl/%DA%A9%DB%8C%D9%88%D8%A8%DB%8C%20%D9%BE%D9%88%D8%B3%D8%AA.zip.002) `13.60 MB`
+
+### 📅 2026-06-16 21:53 (IR Time)
 - 🗜️ [کیوبی ارولوژی.zip.001](https://github.com/Forreceivingarticles/01/raw/main/dl/%DA%A9%DB%8C%D9%88%D8%A8%DB%8C%20%D8%A7%D8%B1%D9%88%D9%84%D9%88%DA%98%DB%8C.zip.001) `95.00 MB`
 - 🗜️ [کیوبی ارولوژی.zip.002](https://github.com/Forreceivingarticles/01/raw/main/dl/%DA%A9%DB%8C%D9%88%D8%A8%DB%8C%20%D8%A7%D8%B1%D9%88%D9%84%D9%88%DA%98%DB%8C.zip.002) `3.94 MB`
 
