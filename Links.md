@@ -1,5 +1,8 @@
 ## 🔗 Direct Download Links
 
+### 📅 2026-06-16 16:00 (IR Time)
+- 🗜️ [کیوبی ریه.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/%DA%A9%DB%8C%D9%88%D8%A8%DB%8C%20%D8%B1%DB%8C%D9%87.zip) `85.92 MB`
+
 ### 📅 2026-06-16 15:59 (IR Time)
 - 🗜️ [QB1404جراحی 1.zip.001](https://github.com/Forreceivingarticles/01/raw/main/dl/QB1404%D8%AC%D8%B1%D8%A7%D8%AD%DB%8C%201.zip.001) `95.00 MB`
 - 🗜️ [QB1404جراحی 1.zip.002](https://github.com/Forreceivingarticles/01/raw/main/dl/QB1404%D8%AC%D8%B1%D8%A7%D8%AD%DB%8C%201.zip.002) `29.60 MB`
