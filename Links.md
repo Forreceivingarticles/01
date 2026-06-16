@@ -1,5 +1,8 @@
 ## 🔗 Direct Download Links
 
+### 📅 2026-06-16 15:52 (IR Time)
+- 🗜️ [NF _ Britt Nicole - Can You Hold Me.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/NF%20_%20Britt%20Nicole%20-%20Can%20You%20Hold%20Me.zip) `8.51 MB`
+
 ### 📅 2026-06-10 10:37 (IR Time)
 - 🗜️ [ Gary Weismer_ Jeannette Dee Hoit_ Brad Story - Foundations of speech and hearing _ anatomy and physiology _2022_ - libgen.li.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/%20Gary%20Weismer_%20Jeannette%20Dee%20Hoit_%20Brad%20Story%20-%20Foundations%20of%20speech%20and%20hearing%20_%20anatomy%20and%20physiology%20_2022_%20-%20libgen.li.zip) `82.19 MB`
 
