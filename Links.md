@@ -1,6 +1,9 @@
 ## 🔗 Direct Download Links
 
 ### 📅 2026-06-16 16:02 (IR Time)
+- 🗜️ [SKM_C75925090216400.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/SKM_C75925090216400.zip) `19.58 MB`
+
+### 📅 2026-06-16 16:02 (IR Time)
 - 🗜️ [کیوبی غدد.zip.001](https://github.com/Forreceivingarticles/01/raw/main/dl/%DA%A9%DB%8C%D9%88%D8%A8%DB%8C%20%D8%BA%D8%AF%D8%AF.zip.001) `95.00 MB`
 - 🗜️ [کیوبی غدد.zip.002](https://github.com/Forreceivingarticles/01/raw/main/dl/%DA%A9%DB%8C%D9%88%D8%A8%DB%8C%20%D8%BA%D8%AF%D8%AF.zip.002) `6.83 MB`
 
