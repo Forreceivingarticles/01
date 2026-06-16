@@ -1,5 +1,8 @@
 ## 🔗 Direct Download Links
 
+### 📅 2026-06-16 21:45 (IR Time)
+- 🗜️ [SKM_C75925090216470.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/SKM_C75925090216470.zip) `14.14 MB`
+
 ### 📅 2026-06-16 16:04 (IR Time)
 - 🗜️ [کیوبی گوش و حلق و بینی.zip.001](https://github.com/Forreceivingarticles/01/raw/main/dl/%DA%A9%DB%8C%D9%88%D8%A8%DB%8C%20%DA%AF%D9%88%D8%B4%20%D9%88%20%D8%AD%D9%84%D9%82%20%D9%88%20%D8%A8%DB%8C%D9%86%DB%8C.zip.001) `95.00 MB`
 - 🗜️ [کیوبی گوش و حلق و بینی.zip.002](https://github.com/Forreceivingarticles/01/raw/main/dl/%DA%A9%DB%8C%D9%88%D8%A8%DB%8C%20%DA%AF%D9%88%D8%B4%20%D9%88%20%D8%AD%D9%84%D9%82%20%D9%88%20%D8%A8%DB%8C%D9%86%DB%8C.zip.002) `22.93 MB`
