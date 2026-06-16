@@ -1,5 +1,9 @@
 ## 🔗 Direct Download Links
 
+### 📅 2026-06-16 21:55 (IR Time)
+- 🗜️ [کیوبی عفونی.zip.001](https://github.com/Forreceivingarticles/01/raw/main/dl/%DA%A9%DB%8C%D9%88%D8%A8%DB%8C%20%D8%B9%D9%81%D9%88%D9%86%DB%8C.zip.001) `95.00 MB`
+- 🗜️ [کیوبی عفونی.zip.002](https://github.com/Forreceivingarticles/01/raw/main/dl/%DA%A9%DB%8C%D9%88%D8%A8%DB%8C%20%D8%B9%D9%81%D9%88%D9%86%DB%8C.zip.002) `59.94 MB`
+
 ### 📅 2026-06-16 21:54 (IR Time)
 - 🗜️ [کیوبی ریه.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/%DA%A9%DB%8C%D9%88%D8%A8%DB%8C%20%D8%B1%DB%8C%D9%87.zip) `85.92 MB`
 
