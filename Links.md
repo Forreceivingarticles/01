@@ -1,5 +1,8 @@
 ## 🔗 Direct Download Links
 
+### 📅 2026-06-18 17:21 (IR Time)
+- 🗜️ [Ear__Nose_and_Throat_Diseases_With_He_z_library_sk__1lib_sk_.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/Ear__Nose_and_Throat_Diseases_With_He_z_library_sk__1lib_sk_.zip) `33.72 MB`
+
 ### 📅 2026-06-18 17:15 (IR Time)
 - 🗜️ [ Anthony P. Sclafani - Rhinoplasty_ The Experts_ Reference _2015_ Thieme_ - libgen.li.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/%20Anthony%20P.%20Sclafani%20-%20Rhinoplasty_%20The%20Experts_%20Reference%20_2015_%20Thieme_%20-%20libgen.li.zip) `67.71 MB`
 
