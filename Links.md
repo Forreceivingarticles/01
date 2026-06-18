@@ -1,5 +1,8 @@
 ## 🔗 Direct Download Links
 
+### 📅 2026-06-18 17:15 (IR Time)
+- 🗜️ [ Anthony P. Sclafani - Rhinoplasty_ The Experts_ Reference _2015_ Thieme_ - libgen.li.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/%20Anthony%20P.%20Sclafani%20-%20Rhinoplasty_%20The%20Experts_%20Reference%20_2015_%20Thieme_%20-%20libgen.li.zip) `67.71 MB`
+
 ### 📅 2026-06-17 20:55 (IR Time)
 - 🗜️ [کیوبی خون _.zip.001](https://github.com/Forreceivingarticles/01/raw/main/dl/%DA%A9%DB%8C%D9%88%D8%A8%DB%8C%20%D8%AE%D9%88%D9%86%20_.zip.001) `95.00 MB`
 - 🗜️ [کیوبی خون _.zip.002](https://github.com/Forreceivingarticles/01/raw/main/dl/%DA%A9%DB%8C%D9%88%D8%A8%DB%8C%20%D8%AE%D9%88%D9%86%20_.zip.002) `95.00 MB`
