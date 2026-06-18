@@ -1,5 +1,8 @@
 ## 🔗 Direct Download Links
 
+### 📅 2026-06-18 17:24 (IR Time)
+- 🗜️ [ Anthony P. Sclafani - Total Otolaryngology - Head and Neck Surgery _2014_ Thieme_ - libgen.li.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/%20Anthony%20P.%20Sclafani%20-%20Total%20Otolaryngology%20-%20Head%20and%20Neck%20Surgery%20_2014_%20Thieme_%20-%20libgen.li.zip) `80.92 MB`
+
 ### 📅 2026-06-18 17:21 (IR Time)
 - 🗜️ [Ear__Nose_and_Throat_Diseases_With_He_z_library_sk__1lib_sk_.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/Ear__Nose_and_Throat_Diseases_With_He_z_library_sk__1lib_sk_.zip) `33.72 MB`
 
