@@ -1,6 +1,9 @@
 ## 🔗 Direct Download Links
 
 ### 📅 2026-06-19 09:11 (IR Time)
+- 🗜️ [7- بیماری های عصبی و عضلانی.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/7-%20%D8%A8%DB%8C%D9%85%D8%A7%D8%B1%DB%8C%20%D9%87%D8%A7%DB%8C%20%D8%B9%D8%B5%D8%A8%DB%8C%20%D9%88%20%D8%B9%D8%B6%D9%84%D8%A7%D9%86%DB%8C.zip) `14.13 MB`
+
+### 📅 2026-06-19 09:11 (IR Time)
 - 🗜️ [اینفینیتی ارتوپدی 1 پیرحاجی 1403.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/%D8%A7%DB%8C%D9%86%D9%81%DB%8C%D9%86%DB%8C%D8%AA%DB%8C%20%D8%A7%D8%B1%D8%AA%D9%88%D9%BE%D8%AF%DB%8C%201%20%D9%BE%DB%8C%D8%B1%D8%AD%D8%A7%D8%AC%DB%8C%201403.zip) `39.53 MB`
 
 ### 📅 2026-06-19 09:11 (IR Time)
