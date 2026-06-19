@@ -1,6 +1,9 @@
 ## 🔗 Direct Download Links
 
 ### 📅 2026-06-19 09:11 (IR Time)
+- 🗜️ [10- تعویض مفصل.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/10-%20%D8%AA%D8%B9%D9%88%DB%8C%D8%B6%20%D9%85%D9%81%D8%B5%D9%84.zip) `4.08 MB`
+
+### 📅 2026-06-19 09:11 (IR Time)
 - 🗜️ [ortho3.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/ortho3.zip) `0.57 MB`
 
 ### 📅 2026-06-19 09:11 (IR Time)
