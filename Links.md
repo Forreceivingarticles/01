@@ -1,6 +1,9 @@
 ## 🔗 Direct Download Links
 
 ### 📅 2026-06-19 09:10 (IR Time)
+- 🗜️ [9- بیماری های عفونی.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/9-%20%D8%A8%DB%8C%D9%85%D8%A7%D8%B1%DB%8C%20%D9%87%D8%A7%DB%8C%20%D8%B9%D9%81%D9%88%D9%86%DB%8C.zip) `81.78 MB`
+
+### 📅 2026-06-19 09:10 (IR Time)
 - 🗜️ [3- بیماری های زانو 2.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/3-%20%D8%A8%DB%8C%D9%85%D8%A7%D8%B1%DB%8C%20%D9%87%D8%A7%DB%8C%20%D8%B2%D8%A7%D9%86%D9%88%202.zip) `82.26 MB`
 
 ### 📅 2026-06-19 09:10 (IR Time)
