@@ -1,6 +1,9 @@
 ## 🔗 Direct Download Links
 
 ### 📅 2026-06-19 09:07 (IR Time)
+- 🗜️ [6- شکستگی اندام تحتانی 1.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/6-%20%D8%B4%DA%A9%D8%B3%D8%AA%DA%AF%DB%8C%20%D8%A7%D9%86%D8%AF%D8%A7%D9%85%20%D8%AA%D8%AD%D8%AA%D8%A7%D9%86%DB%8C%201.zip) `65.40 MB`
+
+### 📅 2026-06-19 09:07 (IR Time)
 - 🗜️ [خلاصه طلایی ارتوپدی 3 پیرحاجی 1403.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/%D8%AE%D9%84%D8%A7%D8%B5%D9%87%20%D8%B7%D9%84%D8%A7%DB%8C%DB%8C%20%D8%A7%D8%B1%D8%AA%D9%88%D9%BE%D8%AF%DB%8C%203%20%D9%BE%DB%8C%D8%B1%D8%AD%D8%A7%D8%AC%DB%8C%201403.zip) `21.49 MB`
 
 ### 📅 2026-06-19 09:07 (IR Time)
