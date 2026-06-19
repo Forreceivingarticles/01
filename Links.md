@@ -1,6 +1,9 @@
 ## 🔗 Direct Download Links
 
 ### 📅 2026-06-19 09:12 (IR Time)
+- 🗜️ [اینفینیتی ارتوپدی 3 پیرحاجی 1403.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/%D8%A7%DB%8C%D9%86%D9%81%DB%8C%D9%86%DB%8C%D8%AA%DB%8C%20%D8%A7%D8%B1%D8%AA%D9%88%D9%BE%D8%AF%DB%8C%203%20%D9%BE%DB%8C%D8%B1%D8%AD%D8%A7%D8%AC%DB%8C%201403.zip) `31.91 MB`
+
+### 📅 2026-06-19 09:12 (IR Time)
 - 🗜️ [3- شکستگی و آسیب های ستون مهره.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/3-%20%D8%B4%DA%A9%D8%B3%D8%AA%DA%AF%DB%8C%20%D9%88%20%D8%A2%D8%B3%DB%8C%D8%A8%20%D9%87%D8%A7%DB%8C%20%D8%B3%D8%AA%D9%88%D9%86%20%D9%85%D9%87%D8%B1%D9%87.zip) `16.86 MB`
 
 ### 📅 2026-06-19 09:12 (IR Time)
