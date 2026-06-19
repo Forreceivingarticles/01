@@ -1,6 +1,9 @@
 ## 🔗 Direct Download Links
 
 ### 📅 2026-06-19 09:09 (IR Time)
+- 🗜️ [1- بیماری های هیپ.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/1-%20%D8%A8%DB%8C%D9%85%D8%A7%D8%B1%DB%8C%20%D9%87%D8%A7%DB%8C%20%D9%87%DB%8C%D9%BE.zip) `59.99 MB`
+
+### 📅 2026-06-19 09:09 (IR Time)
 - 🗜️ [1- ارتوپدی اطفال _قسمت اول_.zip.001](https://github.com/Forreceivingarticles/01/raw/main/dl/1-%20%D8%A7%D8%B1%D8%AA%D9%88%D9%BE%D8%AF%DB%8C%20%D8%A7%D8%B7%D9%81%D8%A7%D9%84%20_%D9%82%D8%B3%D9%85%D8%AA%20%D8%A7%D9%88%D9%84_.zip.001) `95.00 MB`
 - 🗜️ [1- ارتوپدی اطفال _قسمت اول_.zip.002](https://github.com/Forreceivingarticles/01/raw/main/dl/1-%20%D8%A7%D8%B1%D8%AA%D9%88%D9%BE%D8%AF%DB%8C%20%D8%A7%D8%B7%D9%81%D8%A7%D9%84%20_%D9%82%D8%B3%D9%85%D8%AA%20%D8%A7%D9%88%D9%84_.zip.002) `64.06 MB`
 
