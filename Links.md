@@ -1,5 +1,8 @@
 ## 🔗 Direct Download Links
 
+### 📅 2026-06-19 09:13 (IR Time)
+- 🗜️ [3- بیماری های شانه.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/3-%20%D8%A8%DB%8C%D9%85%D8%A7%D8%B1%DB%8C%20%D9%87%D8%A7%DB%8C%20%D8%B4%D8%A7%D9%86%D9%87.zip) `23.86 MB`
+
 ### 📅 2026-06-19 09:12 (IR Time)
 - 🗜️ [2- بیماری های ستون مهره.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/2-%20%D8%A8%DB%8C%D9%85%D8%A7%D8%B1%DB%8C%20%D9%87%D8%A7%DB%8C%20%D8%B3%D8%AA%D9%88%D9%86%20%D9%85%D9%87%D8%B1%D9%87.zip) `28.66 MB`
 
