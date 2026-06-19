@@ -1,5 +1,8 @@
 ## 🔗 Direct Download Links
 
+### 📅 2026-06-19 09:10 (IR Time)
+- 🗜️ [2- بیماری های زانو 1.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/2-%20%D8%A8%DB%8C%D9%85%D8%A7%D8%B1%DB%8C%20%D9%87%D8%A7%DB%8C%20%D8%B2%D8%A7%D9%86%D9%88%201.zip) `58.00 MB`
+
 ### 📅 2026-06-19 09:09 (IR Time)
 - 🗜️ [8- بیماری های دست.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/8-%20%D8%A8%DB%8C%D9%85%D8%A7%D8%B1%DB%8C%20%D9%87%D8%A7%DB%8C%20%D8%AF%D8%B3%D8%AA.zip) `83.05 MB`
 
