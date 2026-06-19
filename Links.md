@@ -1,6 +1,9 @@
 ## 🔗 Direct Download Links
 
 ### 📅 2026-06-19 09:11 (IR Time)
+- 🗜️ [ortho2tt.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/ortho2tt.zip) `0.80 MB`
+
+### 📅 2026-06-19 09:11 (IR Time)
 - 🗜️ [Taghirat ortho1.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/Taghirat%20ortho1.zip) `0.71 MB`
 
 ### 📅 2026-06-19 09:11 (IR Time)
