@@ -1,6 +1,9 @@
 ## 🔗 Direct Download Links
 
 ### 📅 2026-06-19 09:12 (IR Time)
+- 🗜️ [1- کلیات شکستگی.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/1-%20%DA%A9%D9%84%DB%8C%D8%A7%D8%AA%20%D8%B4%DA%A9%D8%B3%D8%AA%DA%AF%DB%8C.zip) `27.62 MB`
+
+### 📅 2026-06-19 09:12 (IR Time)
 - 🗜️ [اینفینیتی ارتوپدی 3 پیرحاجی 1403.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/%D8%A7%DB%8C%D9%86%D9%81%DB%8C%D9%86%DB%8C%D8%AA%DB%8C%20%D8%A7%D8%B1%D8%AA%D9%88%D9%BE%D8%AF%DB%8C%203%20%D9%BE%DB%8C%D8%B1%D8%AD%D8%A7%D8%AC%DB%8C%201403.zip) `31.91 MB`
 
 ### 📅 2026-06-19 09:12 (IR Time)
