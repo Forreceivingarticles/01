@@ -1,6 +1,9 @@
 ## 🔗 Direct Download Links
 
 ### 📅 2026-06-19 09:07 (IR Time)
+- 🗜️ [2- عوارض شکستگی.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/2-%20%D8%B9%D9%88%D8%A7%D8%B1%D8%B6%20%D8%B4%DA%A9%D8%B3%D8%AA%DA%AF%DB%8C.zip) `74.61 MB`
+
+### 📅 2026-06-19 09:07 (IR Time)
 - 🗜️ [6- شکستگی اندام تحتانی 1.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/6-%20%D8%B4%DA%A9%D8%B3%D8%AA%DA%AF%DB%8C%20%D8%A7%D9%86%D8%AF%D8%A7%D9%85%20%D8%AA%D8%AD%D8%AA%D8%A7%D9%86%DB%8C%201.zip) `65.40 MB`
 
 ### 📅 2026-06-19 09:07 (IR Time)
