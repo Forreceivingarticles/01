@@ -1,6 +1,9 @@
 ## 🔗 Direct Download Links
 
 ### 📅 2026-06-19 09:09 (IR Time)
+- 🗜️ [8- بیماری های دست.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/8-%20%D8%A8%DB%8C%D9%85%D8%A7%D8%B1%DB%8C%20%D9%87%D8%A7%DB%8C%20%D8%AF%D8%B3%D8%AA.zip) `83.05 MB`
+
+### 📅 2026-06-19 09:09 (IR Time)
 - 🗜️ [4- بیماری های ستون مهره _قسمت دوم_.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/4-%20%D8%A8%DB%8C%D9%85%D8%A7%D8%B1%DB%8C%20%D9%87%D8%A7%DB%8C%20%D8%B3%D8%AA%D9%88%D9%86%20%D9%85%D9%87%D8%B1%D9%87%20_%D9%82%D8%B3%D9%85%D8%AA%20%D8%AF%D9%88%D9%85_.zip) `86.67 MB`
 
 ### 📅 2026-06-19 09:09 (IR Time)
