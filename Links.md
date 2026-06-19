@@ -1,5 +1,8 @@
 ## 🔗 Direct Download Links
 
+### 📅 2026-06-19 09:06 (IR Time)
+- 🗜️ [خلاصه طلایی ارتوپدی 1 پیرحاجی 1403.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/%D8%AE%D9%84%D8%A7%D8%B5%D9%87%20%D8%B7%D9%84%D8%A7%DB%8C%DB%8C%20%D8%A7%D8%B1%D8%AA%D9%88%D9%BE%D8%AF%DB%8C%201%20%D9%BE%DB%8C%D8%B1%D8%AD%D8%A7%D8%AC%DB%8C%201403.zip) `18.62 MB`
+
 ### 📅 2026-06-18 17:24 (IR Time)
 - 🗜️ [ Anthony P. Sclafani - Total Otolaryngology - Head and Neck Surgery _2014_ Thieme_ - libgen.li.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/%20Anthony%20P.%20Sclafani%20-%20Total%20Otolaryngology%20-%20Head%20and%20Neck%20Surgery%20_2014_%20Thieme_%20-%20libgen.li.zip) `80.92 MB`
 
