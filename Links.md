@@ -1,6 +1,9 @@
 ## 🔗 Direct Download Links
 
 ### 📅 2026-06-19 09:10 (IR Time)
+- 🗜️ [4- بیماری های مچ پا و پا.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/4-%20%D8%A8%DB%8C%D9%85%D8%A7%D8%B1%DB%8C%20%D9%87%D8%A7%DB%8C%20%D9%85%DA%86%20%D9%BE%D8%A7%20%D9%88%20%D9%BE%D8%A7.zip) `63.22 MB`
+
+### 📅 2026-06-19 09:10 (IR Time)
 - 🗜️ [9- بیماری های عفونی.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/9-%20%D8%A8%DB%8C%D9%85%D8%A7%D8%B1%DB%8C%20%D9%87%D8%A7%DB%8C%20%D8%B9%D9%81%D9%88%D9%86%DB%8C.zip) `81.78 MB`
 
 ### 📅 2026-06-19 09:10 (IR Time)
