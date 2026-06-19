@@ -1,6 +1,9 @@
 ## 🔗 Direct Download Links
 
 ### 📅 2026-06-19 09:10 (IR Time)
+- 🗜️ [7- بیماری های متابولیک استخوان.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/7-%20%D8%A8%DB%8C%D9%85%D8%A7%D8%B1%DB%8C%20%D9%87%D8%A7%DB%8C%20%D9%85%D8%AA%D8%A7%D8%A8%D9%88%D9%84%DB%8C%DA%A9%20%D8%A7%D8%B3%D8%AA%D8%AE%D9%88%D8%A7%D9%86.zip) `52.03 MB`
+
+### 📅 2026-06-19 09:10 (IR Time)
 - 🗜️ [8- بیماری های عصبی و عضلانی.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/8-%20%D8%A8%DB%8C%D9%85%D8%A7%D8%B1%DB%8C%20%D9%87%D8%A7%DB%8C%20%D8%B9%D8%B5%D8%A8%DB%8C%20%D9%88%20%D8%B9%D8%B6%D9%84%D8%A7%D9%86%DB%8C.zip) `71.28 MB`
 
 ### 📅 2026-06-19 09:10 (IR Time)
