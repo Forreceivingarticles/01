@@ -1,5 +1,9 @@
 ## 🔗 Direct Download Links
 
+### 📅 2026-06-19 11:50 (IR Time)
+- 🗜️ [کیوبی گوش و حلق و بینی.zip.001](https://github.com/Forreceivingarticles/01/raw/main/dl/%DA%A9%DB%8C%D9%88%D8%A8%DB%8C%20%DA%AF%D9%88%D8%B4%20%D9%88%20%D8%AD%D9%84%D9%82%20%D9%88%20%D8%A8%DB%8C%D9%86%DB%8C.zip.001) `95.00 MB`
+- 🗜️ [کیوبی گوش و حلق و بینی.zip.002](https://github.com/Forreceivingarticles/01/raw/main/dl/%DA%A9%DB%8C%D9%88%D8%A8%DB%8C%20%DA%AF%D9%88%D8%B4%20%D9%88%20%D8%AD%D9%84%D9%82%20%D9%88%20%D8%A8%DB%8C%D9%86%DB%8C.zip.002) `22.93 MB`
+
 ### 📅 2026-06-19 09:13 (IR Time)
 - 🗜️ [خلاصه طلایی ارتوپدی 3 پیرحاجی 1403.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/%D8%AE%D9%84%D8%A7%D8%B5%D9%87%20%D8%B7%D9%84%D8%A7%DB%8C%DB%8C%20%D8%A7%D8%B1%D8%AA%D9%88%D9%BE%D8%AF%DB%8C%203%20%D9%BE%DB%8C%D8%B1%D8%AD%D8%A7%D8%AC%DB%8C%201403.zip) `21.49 MB`
 
