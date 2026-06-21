@@ -1,5 +1,8 @@
 ## 🔗 Direct Download Links
 
+### 📅 2026-06-21 06:19 (IR Time)
+- 🗜️ [7- بیماری های مچ دست.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/7-%20%D8%A8%DB%8C%D9%85%D8%A7%D8%B1%DB%8C%20%D9%87%D8%A7%DB%8C%20%D9%85%DA%86%20%D8%AF%D8%B3%D8%AA.zip) `84.64 MB`
+
 ### 📅 2026-06-21 06:18 (IR Time)
 - 🗜️ [8- بیماری های دست.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/8-%20%D8%A8%DB%8C%D9%85%D8%A7%D8%B1%DB%8C%20%D9%87%D8%A7%DB%8C%20%D8%AF%D8%B3%D8%AA.zip) `83.05 MB`
 
