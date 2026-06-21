@@ -1,6 +1,9 @@
 ## 🔗 Direct Download Links
 
 ### 📅 2026-06-21 08:03 (IR Time)
+- 🗜️ [10- تعویض مفصل.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/10-%20%D8%AA%D8%B9%D9%88%DB%8C%D8%B6%20%D9%85%D9%81%D8%B5%D9%84.zip) `4.08 MB`
+
+### 📅 2026-06-21 08:03 (IR Time)
 - 🗜️ [2- بیماری های ستون مهره.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/2-%20%D8%A8%DB%8C%D9%85%D8%A7%D8%B1%DB%8C%20%D9%87%D8%A7%DB%8C%20%D8%B3%D8%AA%D9%88%D9%86%20%D9%85%D9%87%D8%B1%D9%87.zip) `28.66 MB`
 
 ### 📅 2026-06-21 06:20 (IR Time)
