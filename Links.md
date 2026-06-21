@@ -1,5 +1,8 @@
 ## 🔗 Direct Download Links
 
+### 📅 2026-06-21 08:05 (IR Time)
+- 🗜️ [5- شکستگی های اندام تحتانی.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/5-%20%D8%B4%DA%A9%D8%B3%D8%AA%DA%AF%DB%8C%20%D9%87%D8%A7%DB%8C%20%D8%A7%D9%86%D8%AF%D8%A7%D9%85%20%D8%AA%D8%AD%D8%AA%D8%A7%D9%86%DB%8C.zip) `49.07 MB`
+
 ### 📅 2026-06-21 08:04 (IR Time)
 - 🗜️ [1- ارتوپدی اطفال.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/1-%20%D8%A7%D8%B1%D8%AA%D9%88%D9%BE%D8%AF%DB%8C%20%D8%A7%D8%B7%D9%81%D8%A7%D9%84.zip) `52.54 MB`
 
