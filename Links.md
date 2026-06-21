@@ -1,6 +1,11 @@
 ## 🔗 Direct Download Links
 
 ### 📅 2026-06-21 06:18 (IR Time)
+- 🗜️ [7- شکستگی اندام تحتانی 2.zip.001](https://github.com/Forreceivingarticles/01/raw/main/dl/7-%20%D8%B4%DA%A9%D8%B3%D8%AA%DA%AF%DB%8C%20%D8%A7%D9%86%D8%AF%D8%A7%D9%85%20%D8%AA%D8%AD%D8%AA%D8%A7%D9%86%DB%8C%202.zip.001) `95.00 MB`
+- 🗜️ [7- شکستگی اندام تحتانی 2.zip.002](https://github.com/Forreceivingarticles/01/raw/main/dl/7-%20%D8%B4%DA%A9%D8%B3%D8%AA%DA%AF%DB%8C%20%D8%A7%D9%86%D8%AF%D8%A7%D9%85%20%D8%AA%D8%AD%D8%AA%D8%A7%D9%86%DB%8C%202.zip.002) `95.00 MB`
+- 🗜️ [7- شکستگی اندام تحتانی 2.zip.003](https://github.com/Forreceivingarticles/01/raw/main/dl/7-%20%D8%B4%DA%A9%D8%B3%D8%AA%DA%AF%DB%8C%20%D8%A7%D9%86%D8%AF%D8%A7%D9%85%20%D8%AA%D8%AD%D8%AA%D8%A7%D9%86%DB%8C%202.zip.003) `0.49 MB`
+
+### 📅 2026-06-21 06:18 (IR Time)
 - 🗜️ [6- تومورهای استخوانی.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/6-%20%D8%AA%D9%88%D9%85%D9%88%D8%B1%D9%87%D8%A7%DB%8C%20%D8%A7%D8%B3%D8%AA%D8%AE%D9%88%D8%A7%D9%86%DB%8C.zip) `31.26 MB`
 
 ### 📅 2026-06-21 06:17 (IR Time)
