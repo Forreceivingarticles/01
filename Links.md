@@ -1,6 +1,9 @@
 ## 🔗 Direct Download Links
 
 ### 📅 2026-06-21 08:04 (IR Time)
+- 🗜️ [8- بیماری های عفونی.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/8-%20%D8%A8%DB%8C%D9%85%D8%A7%D8%B1%DB%8C%20%D9%87%D8%A7%DB%8C%20%D8%B9%D9%81%D9%88%D9%86%DB%8C.zip) `17.84 MB`
+
+### 📅 2026-06-21 08:04 (IR Time)
 - 🗜️ [1- بیماری های هیپ.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/1-%20%D8%A8%DB%8C%D9%85%D8%A7%D8%B1%DB%8C%20%D9%87%D8%A7%DB%8C%20%D9%87%DB%8C%D9%BE.zip) `12.85 MB`
 
 ### 📅 2026-06-21 08:04 (IR Time)
