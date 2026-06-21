@@ -1,6 +1,9 @@
 ## 🔗 Direct Download Links
 
 ### 📅 2026-06-21 08:03 (IR Time)
+- 🎵 [6- بیماری های متابولیک استخوان.mp3](https://github.com/Forreceivingarticles/01/raw/main/dl/6-%20%D8%A8%DB%8C%D9%85%D8%A7%D8%B1%DB%8C%20%D9%87%D8%A7%DB%8C%20%D9%85%D8%AA%D8%A7%D8%A8%D9%88%D9%84%DB%8C%DA%A9%20%D8%A7%D8%B3%D8%AA%D8%AE%D9%88%D8%A7%D9%86.mp3) `16.24 MB`
+
+### 📅 2026-06-21 08:03 (IR Time)
 - 🗜️ [9- آمپوتاسیون.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/9-%20%D8%A2%D9%85%D9%BE%D9%88%D8%AA%D8%A7%D8%B3%DB%8C%D9%88%D9%86.zip) `6.28 MB`
 
 ### 📅 2026-06-21 08:03 (IR Time)
