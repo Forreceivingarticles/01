@@ -1,5 +1,8 @@
 ## 🔗 Direct Download Links
 
+### 📅 2026-06-21 06:16 (IR Time)
+- 🗜️ [3- شکستگی و آسیب های ستون مهره.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/3-%20%D8%B4%DA%A9%D8%B3%D8%AA%DA%AF%DB%8C%20%D9%88%20%D8%A2%D8%B3%DB%8C%D8%A8%20%D9%87%D8%A7%DB%8C%20%D8%B3%D8%AA%D9%88%D9%86%20%D9%85%D9%87%D8%B1%D9%87.zip) `60.68 MB`
+
 ### 📅 2026-06-19 11:50 (IR Time)
 - 🗜️ [کیوبی گوش و حلق و بینی.zip.001](https://github.com/Forreceivingarticles/01/raw/main/dl/%DA%A9%DB%8C%D9%88%D8%A8%DB%8C%20%DA%AF%D9%88%D8%B4%20%D9%88%20%D8%AD%D9%84%D9%82%20%D9%88%20%D8%A8%DB%8C%D9%86%DB%8C.zip.001) `95.00 MB`
 - 🗜️ [کیوبی گوش و حلق و بینی.zip.002](https://github.com/Forreceivingarticles/01/raw/main/dl/%DA%A9%DB%8C%D9%88%D8%A8%DB%8C%20%DA%AF%D9%88%D8%B4%20%D9%88%20%D8%AD%D9%84%D9%82%20%D9%88%20%D8%A8%DB%8C%D9%86%DB%8C.zip.002) `22.93 MB`
