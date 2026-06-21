@@ -1,6 +1,9 @@
 ## 🔗 Direct Download Links
 
 ### 📅 2026-06-21 06:16 (IR Time)
+- 🗜️ [5_شکستگی_و_آسیب_های_لگن_و_قفسه_سینه.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/5_%D8%B4%DA%A9%D8%B3%D8%AA%DA%AF%DB%8C_%D9%88_%D8%A2%D8%B3%DB%8C%D8%A8_%D9%87%D8%A7%DB%8C_%D9%84%DA%AF%D9%86_%D9%88_%D9%82%D9%81%D8%B3%D9%87_%D8%B3%DB%8C%D9%86%D9%87.zip) `58.43 MB`
+
+### 📅 2026-06-21 06:16 (IR Time)
 - 🗜️ [3- شکستگی و آسیب های ستون مهره.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/3-%20%D8%B4%DA%A9%D8%B3%D8%AA%DA%AF%DB%8C%20%D9%88%20%D8%A2%D8%B3%DB%8C%D8%A8%20%D9%87%D8%A7%DB%8C%20%D8%B3%D8%AA%D9%88%D9%86%20%D9%85%D9%87%D8%B1%D9%87.zip) `60.68 MB`
 
 ### 📅 2026-06-19 11:50 (IR Time)
