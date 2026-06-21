@@ -1,5 +1,8 @@
 ## 🔗 Direct Download Links
 
+### 📅 2026-06-21 11:55 (IR Time)
+- 📥 [b-0036-135611](https://github.com/Forreceivingarticles/01/raw/main/dl/b-0036-135611) `0.07 MB`
+
 ### 📅 2026-06-21 08:05 (IR Time)
 - 🗜️ [6- بیماری های متابولیک استخوان.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/6-%20%D8%A8%DB%8C%D9%85%D8%A7%D8%B1%DB%8C%20%D9%87%D8%A7%DB%8C%20%D9%85%D8%AA%D8%A7%D8%A8%D9%88%D9%84%DB%8C%DA%A9%20%D8%A7%D8%B3%D8%AA%D8%AE%D9%88%D8%A7%D9%86.zip) `15.29 MB`
 
