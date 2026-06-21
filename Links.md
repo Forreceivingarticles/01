@@ -1,5 +1,8 @@
 ## 🔗 Direct Download Links
 
+### 📅 2026-06-21 06:18 (IR Time)
+- 🗜️ [6- تومورهای استخوانی.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/6-%20%D8%AA%D9%88%D9%85%D9%88%D8%B1%D9%87%D8%A7%DB%8C%20%D8%A7%D8%B3%D8%AA%D8%AE%D9%88%D8%A7%D9%86%DB%8C.zip) `31.26 MB`
+
 ### 📅 2026-06-21 06:17 (IR Time)
 - 🗜️ [1- ارتوپدی اطفال _قسمت اول_.zip.001](https://github.com/Forreceivingarticles/01/raw/main/dl/1-%20%D8%A7%D8%B1%D8%AA%D9%88%D9%BE%D8%AF%DB%8C%20%D8%A7%D8%B7%D9%81%D8%A7%D9%84%20_%D9%82%D8%B3%D9%85%D8%AA%20%D8%A7%D9%88%D9%84_.zip.001) `95.00 MB`
 - 🗜️ [1- ارتوپدی اطفال _قسمت اول_.zip.002](https://github.com/Forreceivingarticles/01/raw/main/dl/1-%20%D8%A7%D8%B1%D8%AA%D9%88%D9%BE%D8%AF%DB%8C%20%D8%A7%D8%B7%D9%81%D8%A7%D9%84%20_%D9%82%D8%B3%D9%85%D8%AA%20%D8%A7%D9%88%D9%84_.zip.002) `64.06 MB`
