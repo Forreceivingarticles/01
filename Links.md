@@ -1,6 +1,9 @@
 ## 🔗 Direct Download Links
 
 ### 📅 2026-06-21 06:19 (IR Time)
+- 🗜️ [6- بیماری های آرنج.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/6-%20%D8%A8%DB%8C%D9%85%D8%A7%D8%B1%DB%8C%20%D9%87%D8%A7%DB%8C%20%D8%A2%D8%B1%D9%86%D8%AC.zip) `44.99 MB`
+
+### 📅 2026-06-21 06:19 (IR Time)
 - 🗜️ [5- بیماری های شانه.zip.001](https://github.com/Forreceivingarticles/01/raw/main/dl/5-%20%D8%A8%DB%8C%D9%85%D8%A7%D8%B1%DB%8C%20%D9%87%D8%A7%DB%8C%20%D8%B4%D8%A7%D9%86%D9%87.zip.001) `95.00 MB`
 - 🗜️ [5- بیماری های شانه.zip.002](https://github.com/Forreceivingarticles/01/raw/main/dl/5-%20%D8%A8%DB%8C%D9%85%D8%A7%D8%B1%DB%8C%20%D9%87%D8%A7%DB%8C%20%D8%B4%D8%A7%D9%86%D9%87.zip.002) `56.27 MB`
 
