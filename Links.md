@@ -1,6 +1,9 @@
 ## 🔗 Direct Download Links
 
 ### 📅 2026-06-21 06:19 (IR Time)
+- 🗜️ [8- بیماری های عصبی و عضلانی.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/8-%20%D8%A8%DB%8C%D9%85%D8%A7%D8%B1%DB%8C%20%D9%87%D8%A7%DB%8C%20%D8%B9%D8%B5%D8%A8%DB%8C%20%D9%88%20%D8%B9%D8%B6%D9%84%D8%A7%D9%86%DB%8C.zip) `71.28 MB`
+
+### 📅 2026-06-21 06:19 (IR Time)
 - 🗜️ [6- بیماری های آرنج.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/6-%20%D8%A8%DB%8C%D9%85%D8%A7%D8%B1%DB%8C%20%D9%87%D8%A7%DB%8C%20%D8%A2%D8%B1%D9%86%D8%AC.zip) `44.99 MB`
 
 ### 📅 2026-06-21 06:19 (IR Time)
