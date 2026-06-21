@@ -1,6 +1,11 @@
 ## 🔗 Direct Download Links
 
 ### 📅 2026-06-21 06:17 (IR Time)
+- 🗜️ [2- ارتوپدی اطفال _قسمت دوم_.zip.001](https://github.com/Forreceivingarticles/01/raw/main/dl/2-%20%D8%A7%D8%B1%D8%AA%D9%88%D9%BE%D8%AF%DB%8C%20%D8%A7%D8%B7%D9%81%D8%A7%D9%84%20_%D9%82%D8%B3%D9%85%D8%AA%20%D8%AF%D9%88%D9%85_.zip.001) `95.00 MB`
+- 🗜️ [2- ارتوپدی اطفال _قسمت دوم_.zip.002](https://github.com/Forreceivingarticles/01/raw/main/dl/2-%20%D8%A7%D8%B1%D8%AA%D9%88%D9%BE%D8%AF%DB%8C%20%D8%A7%D8%B7%D9%81%D8%A7%D9%84%20_%D9%82%D8%B3%D9%85%D8%AA%20%D8%AF%D9%88%D9%85_.zip.002) `95.00 MB`
+- 🗜️ [2- ارتوپدی اطفال _قسمت دوم_.zip.003](https://github.com/Forreceivingarticles/01/raw/main/dl/2-%20%D8%A7%D8%B1%D8%AA%D9%88%D9%BE%D8%AF%DB%8C%20%D8%A7%D8%B7%D9%81%D8%A7%D9%84%20_%D9%82%D8%B3%D9%85%D8%AA%20%D8%AF%D9%88%D9%85_.zip.003) `6.50 MB`
+
+### 📅 2026-06-21 06:17 (IR Time)
 - 🗜️ [3- بیماری های ستون مهره _قسمت اول_.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/3-%20%D8%A8%DB%8C%D9%85%D8%A7%D8%B1%DB%8C%20%D9%87%D8%A7%DB%8C%20%D8%B3%D8%AA%D9%88%D9%86%20%D9%85%D9%87%D8%B1%D9%87%20_%D9%82%D8%B3%D9%85%D8%AA%20%D8%A7%D9%88%D9%84_.zip) `70.14 MB`
 
 ### 📅 2026-06-21 06:17 (IR Time)
