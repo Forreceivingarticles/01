@@ -1,6 +1,9 @@
 ## 🔗 Direct Download Links
 
 ### 📅 2026-06-21 08:03 (IR Time)
+- 🗜️ [7- بیماری های عصبی و عضلانی.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/7-%20%D8%A8%DB%8C%D9%85%D8%A7%D8%B1%DB%8C%20%D9%87%D8%A7%DB%8C%20%D8%B9%D8%B5%D8%A8%DB%8C%20%D9%88%20%D8%B9%D8%B6%D9%84%D8%A7%D9%86%DB%8C.zip) `14.13 MB`
+
+### 📅 2026-06-21 08:03 (IR Time)
 - 🗜️ [3- بیماری های پا و مچ پا.zip](https://github.com/Forreceivingarticles/01/raw/main/dl/3-%20%D8%A8%DB%8C%D9%85%D8%A7%D8%B1%DB%8C%20%D9%87%D8%A7%DB%8C%20%D9%BE%D8%A7%20%D9%88%20%D9%85%DA%86%20%D9%BE%D8%A7.zip) `10.43 MB`
 
 ### 📅 2026-06-21 08:03 (IR Time)
